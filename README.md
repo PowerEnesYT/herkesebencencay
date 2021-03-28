@@ -5,3 +5,4 @@ bakıyon
 yarram
 neo
 bakmasana 
+bak hala bakıyo
