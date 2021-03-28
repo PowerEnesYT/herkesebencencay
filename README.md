@@ -1,5 +1,5 @@
 # herkesebencencay
-Herkese benden çay! (Raksix e yoq)
+Herkese benden çay
 ne
 bakıyon
 yarram
