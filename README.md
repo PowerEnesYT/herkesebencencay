@@ -6,3 +6,4 @@ yarram
 neo
 bakmasana 
 bak hala bakıyo
+lan bakma piç
