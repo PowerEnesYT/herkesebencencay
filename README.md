@@ -10,3 +10,4 @@ lan bakma piç
 bakmasa urusbu cocu
 aloo bakma diyom 
 bakmasana ebesini siktim
+yeter lan amına kodum
