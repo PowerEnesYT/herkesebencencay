@@ -8,3 +8,4 @@ bakmasana
 bak hala bakıyo
 lan bakma piç
 bakmasa urusbu cocu
+aloo bakma diyom 
