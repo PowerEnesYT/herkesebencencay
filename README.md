@@ -4,3 +4,4 @@ ne
 bakıyon
 yarram
 neo
+bakmasana 
